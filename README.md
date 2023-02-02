@@ -1,1 +1,1 @@
-My first coding is not funny
+My first coding is stressful
