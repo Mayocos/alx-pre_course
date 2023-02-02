@@ -1,1 +1,1 @@
-never give up
+never give up on this program
